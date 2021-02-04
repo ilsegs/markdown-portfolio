@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- pancakes :heart:
+- parties :tada:
+- a certain princess 
